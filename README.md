@@ -2,4 +2,6 @@
 
 Do Broken Windows Encourage  Criminality
 
-Catherine Liu & Mengyuan Guo
+Group Member：Catherine Liu | NYU CUSP MASTER's Student
+
+              Mengyuan Guo | NYU CUSP MASTER's Student
